@@ -1,0 +1,1 @@
+# Khairullin_Ramazan-11-008-ADS
